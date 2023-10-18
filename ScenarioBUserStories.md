@@ -1,0 +1,1 @@
+user would pay £5 per month for a subscription, would prefer it to be free, doesn't want ads
